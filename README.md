@@ -16,7 +16,7 @@ I have started my professional journey and I am **_Super Excited_** to share my 
 
 <br>
 
-### You can reach me on:
+### You can reach me through:
 
 -          Gmail: csprongineer@gmail.com
 -          LinkedIn:www.linkedin.com/in/faheem-mfm98
